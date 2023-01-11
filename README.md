@@ -1,0 +1,2 @@
+# sas
+Onasi emmagan qiz
